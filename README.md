@@ -1,2 +1,0 @@
-# minecraft-adaptado
-para saqueu
